@@ -1,4 +1,4 @@
-
+Enhance your ExpressVPN experience with ExpressVPN new Extension: camouflage-mode & end-to-end-encryption, the #1 extension. Includes camouflage-mode and end-to-end-encryption for
 
 
 
